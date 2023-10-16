@@ -1,5 +1,5 @@
 - 👋 **Hi, I’m**:   @shellindersinghs, silly bougie foodie nerd living in Philly.
-- 👀 **I’m interested in**:   all things technology, especially where arts & humanities intersect. 
+- 👀 **I’m interested in**:   all things technology, especially where the arts & humanities intersect. 
 - 🌱 **I’m currently learning**:  how to speak Spanish so I can connect better with strangers in my next trip to Costa Rica.
 - 💞️ **I’m looking to collaborate**:   & build upon our network of ideas to collectively work smarter, not harder, most of all: together.
 - :coffee: **I'm currently drinking**:   a Cometeer + vegan protein smoothie.
